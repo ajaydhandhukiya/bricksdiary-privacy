@@ -1,0 +1,1 @@
+# bricksdiary-privacy
